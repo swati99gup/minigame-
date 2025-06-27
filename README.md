@@ -1,2 +1,2 @@
 # minigame-
-Author:-Swati Gupta
+Author:-Swati (kumari)
